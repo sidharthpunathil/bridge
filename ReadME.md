@@ -1,5 +1,5 @@
 # 🌉Bridge
-###  Redefining Degital Documents
+###  Redefining Digital Documents
 
 ![certificate](https://i.ibb.co/nrr6QfS/Screenshot-2023-04-29-140030.png)
 
